@@ -1,0 +1,1 @@
+# Dispersion-Relation-of-1-Dimensional-Photonic-Crystal-
